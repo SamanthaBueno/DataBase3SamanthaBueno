@@ -2,4 +2,4 @@
 
 Hi Prof. Trevera!
 
-I'm trying to do what he asked: v xD
+I'm trying to do what you said :v xD
