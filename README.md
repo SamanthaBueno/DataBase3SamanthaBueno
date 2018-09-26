@@ -2,4 +2,4 @@
 
 Hi Prof. Trevera!
 
-Estoy intentando hacer lo que pidio :v xD
+I'm trying to do what he asked: v xD
